@@ -4,7 +4,7 @@ Nafiz Android Lock App – To lock any phone of yours. It has a lock system with
 
 
 Developer BY : MD: NAFIZ SHEIKH 
-developer contact : t.me/Nafizsheikh0x
+developer contact : https://t.me/Nafizsheikh0x
 Telegram Channel 👇
 https://t.me/nafizsheikhtech
 
