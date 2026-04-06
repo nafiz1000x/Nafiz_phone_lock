@@ -19,7 +19,7 @@ python Nafiz_lock.py
 ```
 
 এটার ফুল সেটাপ ভিডিও দেখে আসুন 👇
-(৷৷৷৷৷ )
+(https://t.me/nafizsheikhtech/448)
 
 
 
